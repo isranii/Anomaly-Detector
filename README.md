@@ -88,8 +88,8 @@ Ready to experience the power of the ANOMALY DETECTOR? Follow these simple steps
 ```
 
 ---
-## 👋 Connect with Us!
+## 👋 Connect!
 
-For any inquiries, potential collaboration opportunities, feedback, or just to say hello, please don't hesitate to reach out!
-
+You can reach out to me at -
 📧 **Email:** jahnaviisrani12@gmail.com
+   
